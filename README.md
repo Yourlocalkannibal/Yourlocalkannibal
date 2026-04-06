@@ -1,5 +1,5 @@
 
-*HAI, VISIT STRAWS FOR INFOS OR CHILL WITH MY BLINKIES HERE! <3*
+*HAI, VISIT STRAWS FOR INFOS OR CHILL WITH MY BLINKIES HERE! YES THIS IS GONNA BE REWORKED ON SHHH, IM LAZY! <3*
 
 
 ![image](https://github.com/user-attachments/assets/ebf48369-6813-489d-8368-06d43fc4ddcb) ![image](https://github.com/user-attachments/assets/5516ea97-b3ac-4f7a-9501-12498b0a2308) ![image](https://github.com/user-attachments/assets/4ea1a932-c2d7-4a30-8d5b-5b6235ed213f) ![image](https://github.com/user-attachments/assets/98c7658f-74f3-4f1e-b56b-134e582d0161) ![image](https://github.com/user-attachments/assets/83f94e79-583e-47bd-b34a-350f0ceb318f) ![image](https://github.com/user-attachments/assets/6cc53cad-0042-4b25-9648-2a7100c220da) ![image](https://github.com/user-attachments/assets/8c88637d-88a5-4bc8-a76e-17d2cd8f2ac8) ![image](https://github.com/user-attachments/assets/66d4814d-11d2-4709-aa53-18a47c65bf3e) ![image](https://github.com/user-attachments/assets/bd5d4389-402b-4ab2-b64a-9738632ff8b8) ![image](https://github.com/user-attachments/assets/0e81cbfe-50c1-49f0-a145-fdc92660021a) ![image](https://github.com/user-attachments/assets/52313663-8cf2-4065-bbdf-588237ef06c4)
