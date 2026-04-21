@@ -1,7 +1,7 @@
 
 
 
-  ![image](https://files.catbox.moe/jpkllc.jpeg)
+
   
 <p align="center"
    
