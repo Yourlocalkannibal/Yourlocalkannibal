@@ -11,6 +11,10 @@
       
 *HAI, MY CHERUBUNS WE'RE BACK ON THE LINE! 💕LOVE!💕*
 
+  <p align="center" 
+    
+「I like sweets, horror & monsters」
+
  <p align="center"
    
 ![image](https://64.media.tumblr.com/15abb32cf720f38d8dd32c921955538c/693426381f0b84ec-d8/s400x600/edfdcf5d7651244b32035824222b29987837ac56.gif)
