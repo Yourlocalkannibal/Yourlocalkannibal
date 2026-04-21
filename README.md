@@ -11,6 +11,10 @@
       
 *HAI, MY CHERUBUNS WE'RE BACK ON THE LINE! 💕LOVE!💕*
 
+ <p align="center"
+   
+![image](https://64.media.tumblr.com/15abb32cf720f38d8dd32c921955538c/693426381f0b84ec-d8/s400x600/edfdcf5d7651244b32035824222b29987837ac56.gif)
+
   <p align="center"
 
   INFOS ON STRAW! BLINKIES ON GIT! :3
@@ -19,6 +23,9 @@
 ![image](https://github.com/user-attachments/assets/f62e3020-1a1a-4ce6-a9df-0e009470b769) ![image](https://github.com/user-attachments/assets/d657fb68-0043-4e3f-a071-4963a2d274e5) ![image](https://github.com/user-attachments/assets/d5bc8bda-1966-426b-86ba-ca3401eeeca2) ![image](https://github.com/user-attachments/assets/ff2d21fb-a259-4897-9eb7-47269b949f68) ![image](https://github.com/user-attachments/assets/dd31b1a5-fe2a-47d3-ba7d-2f46d6af9b27) ![image](https://github.com/user-attachments/assets/32f5e597-c4eb-42c3-a068-ef775c5c14b5) ![image](https://github.com/user-attachments/assets/19f392f5-28ae-41ff-a7be-cf7b703f2064) ![image](https://64.media.tumblr.com/6d12260a3fe9b65f3c9882199f96c30e/60c743a7b9ce31f0-17/s100x200/41987d538b26e28dbad4366e788e51984d3d7fcc.gif)
 ![image](https://github.com/user-attachments/assets/ad050903-897a-455a-b49b-d3ce1ecefb1b) ![image](https://github.com/user-attachments/assets/ef7572bc-fdeb-4ff1-989c-39dc5435a050) ![image](https://github.com/user-attachments/assets/3c934832-5833-402b-bfab-fa14232dd37a)
 
+ <p align="center"
+   
+![image](https://64.media.tumblr.com/15abb32cf720f38d8dd32c921955538c/693426381f0b84ec-d8/s400x600/edfdcf5d7651244b32035824222b29987837ac56.gif)
 
 
 
