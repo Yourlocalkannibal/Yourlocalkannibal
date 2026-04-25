@@ -15,6 +15,7 @@
  <p align="center"
    
 This is hell of a comeback, you are trusted on this site to come. May you make yourself at home, visitor.
+![image](https://64.media.tumblr.com/760fdf716e2912096d9976ff8e566e5a/13bb36bb3bc35268-29/s640x960/a1f043a2c111373ef00ab26ec04595295618c8a5.gif)
 
 *"Why such a welcoming vibe?"*
  <p align="center"
