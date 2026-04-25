@@ -19,7 +19,7 @@ This is hell of a comeback, you are trusted on this site to come. May you make y
 *"Why such a welcoming vibe?"*
  <p align="center"
    
-It's not apocalylse that's gonna stop us from being fancy even if it means ribbons and glitter in the dull dystopian background. The internet angel won't be burned off by the sun!
+It's not apocalylse that's gonna stop the swag & glitters. The internet angel won't be burned off by the sun, you can bet!
 
 
 ![image](https://64.media.tumblr.com/7dc6c615b2578b5ddf9e81458b485312/13bb36bb3bc35268-32/s640x960/272c85269cb157b63513b37b8f768344c5b835d1.gif)
@@ -28,7 +28,7 @@ It's not apocalylse that's gonna stop us from being fancy even if it means ribbo
 
   <p align="center"
     
-***The broadcast is currently off.***
+![image](https://i.imgur.com/ns2UdGe.gif)***The broadcast is currently off.***![image](https://i.imgur.com/ns2UdGe.gif)
 
   <p align="center"
 
