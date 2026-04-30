@@ -33,7 +33,7 @@ It's not apocalylse that's gonna stop the swag & glitters. The internet angel wo
 
   <p align="center"
 
- Check our strawpage if you want to know about us.
+ Check our strawpage if you want to know about us. I NEED MORE BLINKIES GRRHRNRHEHRN
 
 ![image](https://64.media.tumblr.com/dfee9af8f6810456435c7e8b2f79f877/60b723ebf93cd73a-51/s250x400/57d872fba3b0828a54adf385efc5cd70450148ee.gif)
 ![image](https://64.media.tumblr.com/cbf60661ad115c05846f9439a5ec9f1f/9878d76def55ec3a-98/s250x400/2a4ae2c33a70e626716a6040268f91ab81d7bcf9.gif)
