@@ -1,12 +1,14 @@
 <p align="center"
 
-![image](https://64.media.tumblr.com/1af7cb2fac6a7d69faed823a8b9c6c75/13bb36bb3bc35268-ea/s640x960/c45a6880618d8d7ccc88941a5ec27d3f0a906861.gif)
-![image](https://64.media.tumblr.com/760fdf716e2912096d9976ff8e566e5a/13bb36bb3bc35268-29/s640x960/a1f043a2c111373ef00ab26ec04595295618c8a5.gif)
+![image](https://files.catbox.moe/gim5bm.gif)
+<p align="center"
+  
+![image](https://64.media.tumblr.com/99ce18afb4e4c59ba7b9d962c8b19216/0c2ec245ca7fd467-75/s250x400/44895927e65c181d00ff3e112d1098763b7d9cfa.gif)
 
   
 <p align="center"
    
-  ***"Only dogs rule the world now."***
+  ***"Kitty, she's my favorite friend! she's my only friend."***
 
   <p align="center" 
       
@@ -14,18 +16,21 @@
 
  <p align="center"
    
-This is hell of a comeback, you are trusted on this site to come. May you make yourself at home, visitor.
-![image](https://64.media.tumblr.com/760fdf716e2912096d9976ff8e566e5a/13bb36bb3bc35268-29/s640x960/a1f043a2c111373ef00ab26ec04595295618c8a5.gif)
+This is hell of a comeback, you are trusted on this site to come. May you make yourself at home, darling~
+![image](https://64.media.tumblr.com/aebeb8f7521ee6fb0557995080ffab1f/2a25a5e1abd64440-ff/s640x960/39cc5c3ceda82c534732f66b123d37db300ad960.gif)
 
-*"Why such a welcoming vibe?"*
+*"Why have you been missing?"*
  <p align="center"
    
-It's not apocalylse that's gonna stop the swag & glitters. The internet angel won't be burned off by the sun, you can bet!
+They couldn't handle the swag, got me kicked but I back kicking harder with glitters. The internet angel won't leave you, you can bet!
 
 
-![image](https://64.media.tumblr.com/7dc6c615b2578b5ddf9e81458b485312/13bb36bb3bc35268-32/s640x960/272c85269cb157b63513b37b8f768344c5b835d1.gif)
+![image](https://64.media.tumblr.com/aebeb8f7521ee6fb0557995080ffab1f/2a25a5e1abd64440-ff/s640x960/39cc5c3ceda82c534732f66b123d37db300ad960.gif) 
+ <p align="center"
+   
+![image](https://64.media.tumblr.com/99ce18afb4e4c59ba7b9d962c8b19216/0c2ec245ca7fd467-75/s250x400/44895927e65c181d00ff3e112d1098763b7d9cfa.gif)
 
-![image](https://64.media.tumblr.com/760fdf716e2912096d9976ff8e566e5a/13bb36bb3bc35268-29/s640x960/a1f043a2c111373ef00ab26ec04595295618c8a5.gif)
+
 
   <p align="center"
     
@@ -46,7 +51,7 @@ It's not apocalylse that's gonna stop the swag & glitters. The internet angel wo
 ![image](https://github.com/user-attachments/assets/ad050903-897a-455a-b49b-d3ce1ecefb1b) ![image](https://github.com/user-attachments/assets/ef7572bc-fdeb-4ff1-989c-39dc5435a050) ![image](https://github.com/user-attachments/assets/3c934832-5833-402b-bfab-fa14232dd37a)
 
 
- ![image](https://64.media.tumblr.com/7dc6c615b2578b5ddf9e81458b485312/13bb36bb3bc35268-32/s640x960/272c85269cb157b63513b37b8f768344c5b835d1.gif)
+ ![image](https://64.media.tumblr.com/aebeb8f7521ee6fb0557995080ffab1f/2a25a5e1abd64440-ff/s640x960/39cc5c3ceda82c534732f66b123d37db300ad960.gif)
  ![image](https://64.media.tumblr.com/1261b8ee2dfd1f4e9adcbd31d40a5692/d89864e5fc28ebc0-83/s640x960/0d083561b1ce2a15ef836a4bb8090a9fd6421e84.gif)
 
 
