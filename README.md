@@ -48,11 +48,13 @@ They couldn't handle the swag, got me kicked but I back kicking harder with glit
 
 ![image](https://64.media.tumblr.com/6d12260a3fe9b65f3c9882199f96c30e/60c743a7b9ce31f0-17/s100x200/41987d538b26e28dbad4366e788e51984d3d7fcc.gif) ![image](https://github.com/user-attachments/assets/4ea1a932-c2d7-4a30-8d5b-5b6235ed213f) ![image](https://64.media.tumblr.com/cab71c00b358ab792a335a80c16d9c57/ec4e0e3064314d61-c3/s250x400/4d500e0050e382c38ace47110ced64973424408a.gif)
 
-![image](https://github.com/user-attachments/assets/ad050903-897a-455a-b49b-d3ce1ecefb1b) ![image](https://github.com/user-attachments/assets/ef7572bc-fdeb-4ff1-989c-39dc5435a050) ![image](https://github.com/user-attachments/assets/3c934832-5833-402b-bfab-fa14232dd37a)
-
-
  ![image](https://64.media.tumblr.com/aebeb8f7521ee6fb0557995080ffab1f/2a25a5e1abd64440-ff/s640x960/39cc5c3ceda82c534732f66b123d37db300ad960.gif)
- ![image](https://64.media.tumblr.com/1261b8ee2dfd1f4e9adcbd31d40a5692/d89864e5fc28ebc0-83/s640x960/0d083561b1ce2a15ef836a4bb8090a9fd6421e84.gif)
+<p align="center"
+  
+  ![image](https://media1.tenor.com/m/7P3hsjQgNoQAAAAd/jazmin-bean-hello-kitty.gif)
+
+ *"adoring in a totally normal way. Anyways, cya!"*
+
 
 
 
