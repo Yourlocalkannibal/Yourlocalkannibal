@@ -8,7 +8,7 @@
   
 <p align="center"
    
-  ***"I can teach you how yo be just like me, cute as hello kitty!"***
+  ***"I can teach you how to be just like me, cute as hello kitty!"***
 
   <p align="center" 
       
@@ -22,7 +22,7 @@ This is hell of a comeback, you are trusted on this site to come. May you make y
 *"Why have you been missing?"*
  <p align="center"
    
-They couldn't handle the swag, got me kicked but I back kicking harder with glitters. The internet angel won't leave you, you can bet!
+They couldn't handle the swag, got me kicked but Im back kicking harder with glitters. The internet angel won't leave you, you can bet!
 
 
 ![image](https://64.media.tumblr.com/aebeb8f7521ee6fb0557995080ffab1f/2a25a5e1abd64440-ff/s640x960/39cc5c3ceda82c534732f66b123d37db300ad960.gif) 
