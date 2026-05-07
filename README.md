@@ -40,6 +40,7 @@ They couldn't handle the swag, got me kicked but Im back kicking harder with gli
 
  Check our strawpage if you want to know about us. I NEED MORE BLINKIES GRRHRNRHEHRN
 
+![image](https://64.media.tumblr.com/b9db22a77aec72b701666405dbc14aca/504036ef65d29c21-52/s250x400/bf2efdb5556e03f3a14c2052b66be08ebad3c893.gif)
 ![image](https://64.media.tumblr.com/14df5fe5a6b3bdc345418efa4d879a16/5732e589548c1c67-e7/s250x400/709be45e747f9cc1e607aa611002ff27ce614378.gif)
 ![image](https://64.media.tumblr.com/041f05cdce2b5e0bf3c303c75409d126/26538cc3d576717f-bc/s250x400/84882a4eac92e0863957a244742fc6723558f6da.webp) ![image](https://64.media.tumblr.com/dfee9af8f6810456435c7e8b2f79f877/60b723ebf93cd73a-51/s250x400/57d872fba3b0828a54adf385efc5cd70450148ee.gif)
 ![image](https://64.media.tumblr.com/cbf60661ad115c05846f9439a5ec9f1f/9878d76def55ec3a-98/s250x400/2a4ae2c33a70e626716a6040268f91ab81d7bcf9.gif)
