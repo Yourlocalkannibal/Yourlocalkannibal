@@ -8,7 +8,7 @@
   
 <p align="center"
    
-  ***"Kitty, she's my favorite friend! she's my only friend."***
+  ***"I can teach you how yo be just like me, cute as hello kitty!"***
 
   <p align="center" 
       
