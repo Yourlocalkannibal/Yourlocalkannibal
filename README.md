@@ -1,9 +1,6 @@
 <p align="center"
 
 ![image](https://files.catbox.moe/gim5bm.gif)
-<p align="center"
-  
-![image](https://64.media.tumblr.com/99ce18afb4e4c59ba7b9d962c8b19216/0c2ec245ca7fd467-75/s250x400/44895927e65c181d00ff3e112d1098763b7d9cfa.gif)
 
   
 <p align="center"
@@ -19,19 +16,6 @@
 This is hell of a comeback, you are trusted on this site to come. May you make yourself at home, darling~
 ![image](https://64.media.tumblr.com/aebeb8f7521ee6fb0557995080ffab1f/2a25a5e1abd64440-ff/s640x960/39cc5c3ceda82c534732f66b123d37db300ad960.gif)
 
-*"Why have you been missing?"*
- <p align="center"
-   
-They couldn't handle the swag, got me kicked but Im back kicking harder with glitters. The internet angel won't leave you, you can bet!
-
-
-![image](https://64.media.tumblr.com/aebeb8f7521ee6fb0557995080ffab1f/2a25a5e1abd64440-ff/s640x960/39cc5c3ceda82c534732f66b123d37db300ad960.gif) 
- <p align="center"
-   
-![image](https://64.media.tumblr.com/99ce18afb4e4c59ba7b9d962c8b19216/0c2ec245ca7fd467-75/s250x400/44895927e65c181d00ff3e112d1098763b7d9cfa.gif)
-
-
-
   <p align="center"
     
 ![image](https://i.imgur.com/ns2UdGe.gif)***The broadcast is currently off.***![image](https://i.imgur.com/ns2UdGe.gif)
@@ -40,6 +24,7 @@ They couldn't handle the swag, got me kicked but Im back kicking harder with gli
 
  Check our strawpage if you want to know about us. I NEED MORE BLINKIES GRRHRNRHEHRN
 
+![image](https://64.media.tumblr.com/3d8268ef8ea18b9837fdc453aa36ab3f/a2f36e52f7dea4b6-88/s250x400/0549615ab6b38557bc3b9ff6422d88b2a2e3cf9a.gif)
 ![image](https://64.media.tumblr.com/b9db22a77aec72b701666405dbc14aca/504036ef65d29c21-52/s250x400/bf2efdb5556e03f3a14c2052b66be08ebad3c893.gif)
 ![image](https://64.media.tumblr.com/14df5fe5a6b3bdc345418efa4d879a16/5732e589548c1c67-e7/s250x400/709be45e747f9cc1e607aa611002ff27ce614378.gif)
 ![image](https://64.media.tumblr.com/041f05cdce2b5e0bf3c303c75409d126/26538cc3d576717f-bc/s250x400/84882a4eac92e0863957a244742fc6723558f6da.webp) ![image](https://64.media.tumblr.com/dfee9af8f6810456435c7e8b2f79f877/60b723ebf93cd73a-51/s250x400/57d872fba3b0828a54adf385efc5cd70450148ee.gif)
