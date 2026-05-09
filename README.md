@@ -16,6 +16,7 @@
 ![image](https://camo.githubusercontent.com/edf7cb621fafa35f7dda257a6fe0651d0bbdc8725ff1f03b8f218e574805d3d8/68747470733a2f2f36342e6d656469612e74756d626c722e636f6d2f36356137363835663965393035656261666533663039373362646430353333372f336130386231643663643861613439652d38332f7337357837355f63312f386234666138396433646636376331663936343734626231626136653936333464363239313866372e67696676)professional hikkikomori loser with the stability of a landmine & lover of the grotesque, I generally don't bite promise I'm sweet!! & very needy ngl- 𐔌՞. .՞𐦯 Got the about on the strawpaw, I just collect my blinkies here they're yummy & I like shiny...<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/e6909aea-f5c3-4056-b0a5-7c74c0e3ae52" />
 
 
+![image](https://64.media.tumblr.com/4227f18fcc598b76e4c0ac7e15a72ea4/21babd0ca10c5937-85/s250x400/56e336088eb9c03b0dbe2a7487d812479fc1e451.gif)
 ![image](https://64.media.tumblr.com/0bc253f336a90e3e89d2ac14958faedc/262fe66a74810371-08/s250x400/0a0802cfeb982529eab1cf05a84c78b5f8fa05d5.gif)
 ![image](https://64.media.tumblr.com/a724f5e14835ea14fbb9265378c33295/7e493a9d47921e41-d8/s250x400/3bf1f8c922a7dbaa47170b1c4482d5f3e23d4785.gif) ![image](https://64.media.tumblr.com/3d8268ef8ea18b9837fdc453aa36ab3f/a2f36e52f7dea4b6-88/s250x400/0549615ab6b38557bc3b9ff6422d88b2a2e3cf9a.gif)
 ![image](https://64.media.tumblr.com/b9db22a77aec72b701666405dbc14aca/504036ef65d29c21-52/s250x400/bf2efdb5556e03f3a14c2052b66be08ebad3c893.gif)
