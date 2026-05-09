@@ -1,28 +1,19 @@
 <p align="center"
 
+![image](https://camo.githubusercontent.com/218af22cbf42fab1fa21bedb4aca5701e6dd6f8a3a83a0d53c242a6362647220/68747470733a2f2f36342e6d656469612e74756d626c722e636f6d2f32356638383333303332343563616530656438306439393435396533393465382f646439646439383639636136373066302d65322f73313030783230302f343232643530336363383663313561646661613037663733383966333062663465386234333462382e67696676)
+
+<p align="center"
+
 ![image](https://files.catbox.moe/gim5bm.gif)
 
   
-<p align="center"
-   
-  ***"I can teach you how to be just like me, cute as hello kitty!"***
-
   <p align="center" 
       
 *HAI, MY CHERUBUNS WE'RE BACK ON THE LINE! 💕LOVE!💕*
 
  <p align="center"
-   
-This is hell of a comeback, you are trusted on this site to come. May you make yourself at home, darling~
-![image](https://64.media.tumblr.com/aebeb8f7521ee6fb0557995080ffab1f/2a25a5e1abd64440-ff/s640x960/39cc5c3ceda82c534732f66b123d37db300ad960.gif)
 
-  <p align="center"
-    
-![image](https://i.imgur.com/ns2UdGe.gif)***The broadcast is currently off.***![image](https://i.imgur.com/ns2UdGe.gif)
-
-  <p align="center"
-
- Check our strawpage if you want to know about us. I NEED MORE BLINKIES GRRHRNRHEHRN
+![image](https://camo.githubusercontent.com/edf7cb621fafa35f7dda257a6fe0651d0bbdc8725ff1f03b8f218e574805d3d8/68747470733a2f2f36342e6d656469612e74756d626c722e636f6d2f36356137363835663965393035656261666533663039373362646430353333372f336130386231643663643861613439652d38332f7337357837355f63312f386234666138396433646636376331663936343734626231626136653936333464363239313866372e67696676)professional hikkikomori loser with the stability of a landmine & lover of the grotesque, I generally don't bite promise I'm sweet!! & very needy ngl- 𐔌՞. .՞𐦯 Got the about on the strawpaw, I just collect my blinkies here they're yummy & I like shiny..
 
 ![image](https://64.media.tumblr.com/3d8268ef8ea18b9837fdc453aa36ab3f/a2f36e52f7dea4b6-88/s250x400/0549615ab6b38557bc3b9ff6422d88b2a2e3cf9a.gif)
 ![image](https://64.media.tumblr.com/b9db22a77aec72b701666405dbc14aca/504036ef65d29c21-52/s250x400/bf2efdb5556e03f3a14c2052b66be08ebad3c893.gif)
@@ -34,12 +25,10 @@ This is hell of a comeback, you are trusted on this site to come. May you make y
 
 ![image](https://64.media.tumblr.com/6d12260a3fe9b65f3c9882199f96c30e/60c743a7b9ce31f0-17/s100x200/41987d538b26e28dbad4366e788e51984d3d7fcc.gif) ![image](https://github.com/user-attachments/assets/4ea1a932-c2d7-4a30-8d5b-5b6235ed213f) ![image](https://64.media.tumblr.com/cab71c00b358ab792a335a80c16d9c57/ec4e0e3064314d61-c3/s250x400/4d500e0050e382c38ace47110ced64973424408a.gif)
 
- ![image](https://64.media.tumblr.com/aebeb8f7521ee6fb0557995080ffab1f/2a25a5e1abd64440-ff/s640x960/39cc5c3ceda82c534732f66b123d37db300ad960.gif)
-<p align="center"
+ <p align="center"
   
   ![image](https://media1.tenor.com/m/7P3hsjQgNoQAAAAd/jazmin-bean-hello-kitty.gif)
 
- *"adoring in a totally normal way. Anyways, cya!"*
 
 
 
