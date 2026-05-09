@@ -13,9 +13,10 @@
 
  <p align="center"
 
-![image](https://camo.githubusercontent.com/edf7cb621fafa35f7dda257a6fe0651d0bbdc8725ff1f03b8f218e574805d3d8/68747470733a2f2f36342e6d656469612e74756d626c722e636f6d2f36356137363835663965393035656261666533663039373362646430353333372f336130386231643663643861613439652d38332f7337357837355f63312f386234666138396433646636376331663936343734626231626136653936333464363239313866372e67696676)professional hikkikomori loser with the stability of a landmine & lover of the grotesque, I generally don't bite promise I'm sweet!! & very needy ngl- 𐔌՞. .՞𐦯 Got the about on the strawpaw, I just collect my blinkies here they're yummy & I like shiny..
+![image](https://camo.githubusercontent.com/edf7cb621fafa35f7dda257a6fe0651d0bbdc8725ff1f03b8f218e574805d3d8/68747470733a2f2f36342e6d656469612e74756d626c722e636f6d2f36356137363835663965393035656261666533663039373362646430353333372f336130386231643663643861613439652d38332f7337357837355f63312f386234666138396433646636376331663936343734626231626136653936333464363239313866372e67696676)professional hikkikomori loser with the stability of a landmine & lover of the grotesque, I generally don't bite promise I'm sweet!! & very needy ngl- 𐔌՞. .՞𐦯 Got the about on the strawpaw, I just collect my blinkies here they're yummy & I like shiny...<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/e6909aea-f5c3-4056-b0a5-7c74c0e3ae52" />
 
-![image](https://64.media.tumblr.com/3d8268ef8ea18b9837fdc453aa36ab3f/a2f36e52f7dea4b6-88/s250x400/0549615ab6b38557bc3b9ff6422d88b2a2e3cf9a.gif)
+
+![image](https://64.media.tumblr.com/a724f5e14835ea14fbb9265378c33295/7e493a9d47921e41-d8/s250x400/3bf1f8c922a7dbaa47170b1c4482d5f3e23d4785.gif) ![image](https://64.media.tumblr.com/3d8268ef8ea18b9837fdc453aa36ab3f/a2f36e52f7dea4b6-88/s250x400/0549615ab6b38557bc3b9ff6422d88b2a2e3cf9a.gif)
 ![image](https://64.media.tumblr.com/b9db22a77aec72b701666405dbc14aca/504036ef65d29c21-52/s250x400/bf2efdb5556e03f3a14c2052b66be08ebad3c893.gif)
 ![image](https://64.media.tumblr.com/14df5fe5a6b3bdc345418efa4d879a16/5732e589548c1c67-e7/s250x400/709be45e747f9cc1e607aa611002ff27ce614378.gif)
 ![image](https://64.media.tumblr.com/041f05cdce2b5e0bf3c303c75409d126/26538cc3d576717f-bc/s250x400/84882a4eac92e0863957a244742fc6723558f6da.webp) ![image](https://64.media.tumblr.com/dfee9af8f6810456435c7e8b2f79f877/60b723ebf93cd73a-51/s250x400/57d872fba3b0828a54adf385efc5cd70450148ee.gif)
