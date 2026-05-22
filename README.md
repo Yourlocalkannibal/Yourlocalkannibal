@@ -13,7 +13,7 @@
 
  <p align="center"
 
-![image](https://64.media.tumblr.com/2b78c2224ee18f59f4bda16510d95bf3/030ea5fba6663ae4-d3/s75x75_c1/b731c7921d6b0d383c186ac24ea4449fc2068c77.gif)professional hikkikomori loser with the stability of a landmine & lover of the grotesque, I generally don't bite promise I'm sweet!! & very needy ngl- 𐔌՞. .՞𐦯 Got the about on the strawpaw, I just collect my blinkies here they're yummy & I like shiny...
+![image](https://64.media.tumblr.com/2b78c2224ee18f59f4bda16510d95bf3/030ea5fba6663ae4-d3/s75x75_c1/b731c7921d6b0d383c186ac24ea4449fc2068c77.gif)professional hikkikomori loser with the stability of a landmine & lover of the grotesque, I generally don't bite promise I'm nice! Unless you aren't... Got the about on the strawpaw, I just collect my blinkies here they're yummy.
 
 
 ![image](https://64.media.tumblr.com/b08d9b384404250963284df14092b286/1fb5832f49ed888b-0e/s250x400/2d1e1547c5bf205759f98a61cd62a2f4110c8d84.gif) ![image](https://64.media.tumblr.com/95bd1f5b8fb10951718c238431b742d9/938ad1e944a47477-60/s250x400/b85d2f68c93d15692a5818aa3b9e876a6972503b.gif)
