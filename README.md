@@ -4,7 +4,7 @@
 
 <p align="center"
 
-![image](https://files.catbox.moe/gim5bm.gif)
+![image](https://64.media.tumblr.com/1b7725279fdc1b3a7995dbdbadf4664a/65926a41bbb006bb-8f/s1280x1920/ca1c1287412984129f83e6d8cd28ae1595286824.pnj)
 
   
   <p align="center" 
@@ -13,9 +13,10 @@
 
  <p align="center"
 
-![image](https://camo.githubusercontent.com/edf7cb621fafa35f7dda257a6fe0651d0bbdc8725ff1f03b8f218e574805d3d8/68747470733a2f2f36342e6d656469612e74756d626c722e636f6d2f36356137363835663965393035656261666533663039373362646430353333372f336130386231643663643861613439652d38332f7337357837355f63312f386234666138396433646636376331663936343734626231626136653936333464363239313866372e67696676)professional hikkikomori loser with the stability of a landmine & lover of the grotesque, I generally don't bite promise I'm sweet!! & very needy ngl- 𐔌՞. .՞𐦯 Got the about on the strawpaw, I just collect my blinkies here they're yummy & I like shiny...<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/e6909aea-f5c3-4056-b0a5-7c74c0e3ae52" />
+![image](https://camo.githubusercontent.com/edf7cb621fafa35f7dda257a6fe0651d0bbdc8725ff1f03b8f218e574805d3d8/68747470733a2f2f36342e6d656469612e74756d626c722e636f6d2f36356137363835663965393035656261666533663039373362646430353333372f336130386231643663643861613439652d38332f7337357837355f63312f386234666138396433646636376331663936343734626231626136653936333464363239313866372e67696676)professional hikkikomori loser with the stability of a landmine & lover of the grotesque, I generally don't bite promise I'm sweet!! & very needy ngl- 𐔌՞. .՞𐦯 Got the about on the strawpaw, I just collect my blinkies here they're yummy & I like shiny...
 
 
+ ![image](https://64.media.tumblr.com/95bd1f5b8fb10951718c238431b742d9/938ad1e944a47477-60/s250x400/b85d2f68c93d15692a5818aa3b9e876a6972503b.gif)
 ![image](https://64.media.tumblr.com/bd9b51654a78c8698250332cc9da5967/0a63ac92a736742d-3a/s250x400/bccc2b56efe1d58805c873915dfd493a361cc922.gif) ![image](https://64.media.tumblr.com/4227f18fcc598b76e4c0ac7e15a72ea4/21babd0ca10c5937-85/s250x400/56e336088eb9c03b0dbe2a7487d812479fc1e451.gif)
 ![image](https://64.media.tumblr.com/0bc253f336a90e3e89d2ac14958faedc/262fe66a74810371-08/s250x400/0a0802cfeb982529eab1cf05a84c78b5f8fa05d5.gif)
 ![image](https://64.media.tumblr.com/a724f5e14835ea14fbb9265378c33295/7e493a9d47921e41-d8/s250x400/3bf1f8c922a7dbaa47170b1c4482d5f3e23d4785.gif) ![image](https://64.media.tumblr.com/3d8268ef8ea18b9837fdc453aa36ab3f/a2f36e52f7dea4b6-88/s250x400/0549615ab6b38557bc3b9ff6422d88b2a2e3cf9a.gif)
@@ -30,7 +31,7 @@
 
  <p align="center"
   
-  ![image](https://media1.tenor.com/m/7P3hsjQgNoQAAAAd/jazmin-bean-hello-kitty.gif)
+  ![image](https://64.media.tumblr.com/b628b654f2e28050ebbd72dd3c72b321/65926a41bbb006bb-a2/s1280x1920/dea09f8b41e07bbce5ef9ff8d2c6d1ac5b38b44c.pnj)
 
 
 
