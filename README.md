@@ -13,7 +13,7 @@
 
  <p align="center"
 
-![image](https://camo.githubusercontent.com/edf7cb621fafa35f7dda257a6fe0651d0bbdc8725ff1f03b8f218e574805d3d8/68747470733a2f2f36342e6d656469612e74756d626c722e636f6d2f36356137363835663965393035656261666533663039373362646430353333372f336130386231643663643861613439652d38332f7337357837355f63312f386234666138396433646636376331663936343734626231626136653936333464363239313866372e67696676)professional hikkikomori loser with the stability of a landmine & lover of the grotesque, I generally don't bite promise I'm sweet!! & very needy ngl- 𐔌՞. .՞𐦯 Got the about on the strawpaw, I just collect my blinkies here they're yummy & I like shiny...
+![image](https://64.media.tumblr.com/2b78c2224ee18f59f4bda16510d95bf3/030ea5fba6663ae4-d3/s75x75_c1/b731c7921d6b0d383c186ac24ea4449fc2068c77.gif)![image](https://camo.githubusercontent.com/edf7cb621fafa35f7dda257a6fe0651d0bbdc8725ff1f03b8f218e574805d3d8/68747470733a2f2f36342e6d656469612e74756d626c722e636f6d2f36356137363835663965393035656261666533663039373362646430353333372f336130386231643663643861613439652d38332f7337357837355f63312f386234666138396433646636376331663936343734626231626136653936333464363239313866372e67696676)professional hikkikomori loser with the stability of a landmine & lover of the grotesque, I generally don't bite promise I'm sweet!! & very needy ngl- 𐔌՞. .՞𐦯 Got the about on the strawpaw, I just collect my blinkies here they're yummy & I like shiny...
 
 
  ![image](https://64.media.tumblr.com/95bd1f5b8fb10951718c238431b742d9/938ad1e944a47477-60/s250x400/b85d2f68c93d15692a5818aa3b9e876a6972503b.gif)
