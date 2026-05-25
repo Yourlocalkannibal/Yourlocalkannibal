@@ -6,6 +6,10 @@
 
 ![image](https://64.media.tumblr.com/1b7725279fdc1b3a7995dbdbadf4664a/65926a41bbb006bb-8f/s1280x1920/ca1c1287412984129f83e6d8cd28ae1595286824.pnj)
 
+<p align="center"
+
+![image](https://64.media.tumblr.com/e14b6cd2bb1b10a3cdce41f98a73b42b/b3aa09ca418c2506-59/s540x810/6a4f38186af67f2c24cdab24c38d2f31d7c4f78c.webp)
+
   
   <p align="center" 
       
@@ -13,7 +17,10 @@
 
  <p align="center"
 
-![image](https://64.media.tumblr.com/2b78c2224ee18f59f4bda16510d95bf3/030ea5fba6663ae4-d3/s75x75_c1/b731c7921d6b0d383c186ac24ea4449fc2068c77.gif)professional hikkikomori loser with the stability of a landmine & lover of the grotesque, I generally don't bite promise I'm nice! Unless you aren't... Got the about on the strawpaw, I just collect my blinkies here they're yummy.
+![image](https://64.media.tumblr.com/2b78c2224ee18f59f4bda16510d95bf3/030ea5fba6663ae4-d3/s75x75_c1/b731c7921d6b0d383c186ac24ea4449fc2068c77.gif)professional hikkikomori loser with the stability of a landmine & lover of the grotesque, I generally don't bite promise I'm nice! Unless you aren't... Got the about on the strawpaw, I just collect my blinkies here, they're something to me, ***like you***.
+ <p align="center"
+
+I think they look yummy, that's all. I will devour the glitters, flashes & codes to consume their beauty. ***Like yours***.
 
 
 ![image](https://64.media.tumblr.com/8099ae0038afe5211b11cf6a25d698e3/41eeb3a47dcbc3c4-78/s250x400/d10d5e43d74eed4e095f3bdb8733c2c8eefe638c.gif)![image](https://64.media.tumblr.com/11db2acc9f93a2c7c8f0000cb269c72b/d48083b7fa5daabc-44/s250x400/7bf1b992bab8c4346efcc5c8d82033eea6dc5363.gif) ![image](https://64.media.tumblr.com/f23713a8862b14ee5d0bcdc1aa75a5e8/d48083b7fa5daabc-95/s250x400/13413b99540cf2ac120a98484fe506304ed2f729.gif)![image](https://64.media.tumblr.com/b08d9b384404250963284df14092b286/1fb5832f49ed888b-0e/s250x400/2d1e1547c5bf205759f98a61cd62a2f4110c8d84.gif) ![image](https://64.media.tumblr.com/95bd1f5b8fb10951718c238431b742d9/938ad1e944a47477-60/s250x400/b85d2f68c93d15692a5818aa3b9e876a6972503b.gif)
@@ -28,6 +35,10 @@
 ![image](https://github.com/user-attachments/assets/f62e3020-1a1a-4ce6-a9df-0e009470b769) ![image](https://github.com/user-attachments/assets/d657fb68-0043-4e3f-a071-4963a2d274e5) ![image](https://github.com/user-attachments/assets/d5bc8bda-1966-426b-86ba-ca3401eeeca2) ![image](https://github.com/user-attachments/assets/ff2d21fb-a259-4897-9eb7-47269b949f68) ![image](https://github.com/user-attachments/assets/dd31b1a5-fe2a-47d3-ba7d-2f46d6af9b27) ![image](https://github.com/user-attachments/assets/32f5e597-c4eb-42c3-a068-ef775c5c14b5) ![image](https://github.com/user-attachments/assets/19f392f5-28ae-41ff-a7be-cf7b703f2064) ![image](https://64.media.tumblr.com/7ce198de96b042e603b384fff6d4524b/d49ac4534bd8356d-d1/s100x200/fb3452268263a7c8e7fde691047edcfbfa9d12bb.gif) 
 
 ![image](https://64.media.tumblr.com/6d12260a3fe9b65f3c9882199f96c30e/60c743a7b9ce31f0-17/s100x200/41987d538b26e28dbad4366e788e51984d3d7fcc.gif) ![image](https://github.com/user-attachments/assets/4ea1a932-c2d7-4a30-8d5b-5b6235ed213f) ![image](https://64.media.tumblr.com/cab71c00b358ab792a335a80c16d9c57/ec4e0e3064314d61-c3/s250x400/4d500e0050e382c38ace47110ced64973424408a.gif)![image](https://64.media.tumblr.com/4d60f998841f56c753045923f1a7276c/cfa5b983c7939828-9d/s75x75_c1/339003939cdb2f7904e33eac506c92a481791585.gif)
+
+<p align="center"
+
+![image](https://64.media.tumblr.com/e14b6cd2bb1b10a3cdce41f98a73b42b/b3aa09ca418c2506-59/s540x810/6a4f38186af67f2c24cdab24c38d2f31d7c4f78c.webp)
 
  <p align="center"
   
