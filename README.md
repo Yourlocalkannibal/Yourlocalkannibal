@@ -20,7 +20,7 @@
 ![image](https://64.media.tumblr.com/2b78c2224ee18f59f4bda16510d95bf3/030ea5fba6663ae4-d3/s75x75_c1/b731c7921d6b0d383c186ac24ea4449fc2068c77.gif)professional hikkikomori loser with the stability of a landmine & lover of the grotesque, I generally don't bite promise I'm nice! Unless you aren't... Got the about on the strawpaw, I just collect my blinkies here, they're something to me, ***like you***.
  <p align="center"
 
-I think they look yummy, that's all. I will devour the glitters, flashes & codes to consume their beauty. ***Like yours***.
+*If you're offered a dead dove, eat it or leave it. Simple.*
 
 
 ![image](https://64.media.tumblr.com/8099ae0038afe5211b11cf6a25d698e3/41eeb3a47dcbc3c4-78/s250x400/d10d5e43d74eed4e095f3bdb8733c2c8eefe638c.gif)![image](https://64.media.tumblr.com/11db2acc9f93a2c7c8f0000cb269c72b/d48083b7fa5daabc-44/s250x400/7bf1b992bab8c4346efcc5c8d82033eea6dc5363.gif) ![image](https://64.media.tumblr.com/f23713a8862b14ee5d0bcdc1aa75a5e8/d48083b7fa5daabc-95/s250x400/13413b99540cf2ac120a98484fe506304ed2f729.gif)![image](https://64.media.tumblr.com/b08d9b384404250963284df14092b286/1fb5832f49ed888b-0e/s250x400/2d1e1547c5bf205759f98a61cd62a2f4110c8d84.gif) ![image](https://64.media.tumblr.com/95bd1f5b8fb10951718c238431b742d9/938ad1e944a47477-60/s250x400/b85d2f68c93d15692a5818aa3b9e876a6972503b.gif)
