@@ -13,11 +13,11 @@
   
   <p align="center" 
       
-*"HAI, MY CHERUBUNS WE'RE BACK ON THE LINE! 💕LOVE!💕"*
+*"HAI, MY CHERUBUNS WE'RE BACK ONLINE! 💕LOVE!💕"*
 
  <p align="center"
 
-![image](https://64.media.tumblr.com/2b78c2224ee18f59f4bda16510d95bf3/030ea5fba6663ae4-d3/s75x75_c1/b731c7921d6b0d383c186ac24ea4449fc2068c77.gif)ᛝྀིྀི༝professional hikkikomori loser with the stability of a landmine & lover of the grotesque, I generally don't bite promise I'm nice! Unless you aren't... Got the about on the strawpaw, I just collect my blinkies here, they're something to me, ***like you***.
+![image](https://64.media.tumblr.com/2b78c2224ee18f59f4bda16510d95bf3/030ea5fba6663ae4-d3/s75x75_c1/b731c7921d6b0d383c186ac24ea4449fc2068c77.gif)ᛝྀིྀི༝professional hikkikomori loser with the stability of a landmine & lover of the grotesque, I generally don't bite promise I'm nice! Unless you aren't... Got the about on the strawpaw, I just collect my blinkies here.
  <p align="center"
 
 *If you're offered a dead dove, eat it or leave it. Simple.*
