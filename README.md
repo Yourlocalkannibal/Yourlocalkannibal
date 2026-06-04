@@ -4,7 +4,7 @@
 
 <p align="center"
 
-![image](https://64.media.tumblr.com/1b7725279fdc1b3a7995dbdbadf4664a/65926a41bbb006bb-8f/s1280x1920/ca1c1287412984129f83e6d8cd28ae1595286824.pnj)
+![image](https://64.media.tumblr.com/ce1da16d8ffa3d3518e6122c86e53cf8/73d8c91ed679769d-3d/s640x960/9e6ed253510ad820ad687b07fb5deafa8ee99e5a.pnj)
 
 <p align="center"
 
@@ -13,14 +13,15 @@
   
   <p align="center" 
       
-*"HAI, MY CHERUBUNS WE'RE BACK ONLINE! 💕LOVE!💕"*
+![image](https://64.media.tumblr.com/19d0eb0c66fcbcd244e56474aa7c67c1/73d8c91ed679769d-88/s640x960/d2db82efb809ffc3f178d4c8a0550db32bd78366.gif)
 
  <p align="center"
 
-![image](https://64.media.tumblr.com/2b78c2224ee18f59f4bda16510d95bf3/030ea5fba6663ae4-d3/s75x75_c1/b731c7921d6b0d383c186ac24ea4449fc2068c77.gif)ᛝྀིྀི༝professional hikkikomori loser with the stability of a landmine & lover of the grotesque, I generally don't bite promise I'm nice! Unless you aren't... Got the about on the strawpaw, I just collect my blinkies here.
- <p align="center"
+ *If you're offered a dead dove, eat it or leave it. Simple.*
 
-*If you're offered a dead dove, eat it or leave it. Simple.*
+  <p align="center"
+
+ᛝྀིྀི༝Professional hikkikomori loser who loves the grotesque! Wanna know more of me? Go to my strawpaw, I collect blinkies there tehe~ 
 
 
 ![image](https://64.media.tumblr.com/8099ae0038afe5211b11cf6a25d698e3/41eeb3a47dcbc3c4-78/s250x400/d10d5e43d74eed4e095f3bdb8733c2c8eefe638c.gif)![image](https://64.media.tumblr.com/11db2acc9f93a2c7c8f0000cb269c72b/d48083b7fa5daabc-44/s250x400/7bf1b992bab8c4346efcc5c8d82033eea6dc5363.gif) ![image](https://64.media.tumblr.com/f23713a8862b14ee5d0bcdc1aa75a5e8/d48083b7fa5daabc-95/s250x400/13413b99540cf2ac120a98484fe506304ed2f729.gif)![image](https://64.media.tumblr.com/b08d9b384404250963284df14092b286/1fb5832f49ed888b-0e/s250x400/2d1e1547c5bf205759f98a61cd62a2f4110c8d84.gif) ![image](https://64.media.tumblr.com/95bd1f5b8fb10951718c238431b742d9/938ad1e944a47477-60/s250x400/b85d2f68c93d15692a5818aa3b9e876a6972503b.gif)
@@ -42,7 +43,7 @@
 
  <p align="center"
   
-  ![image](https://64.media.tumblr.com/b628b654f2e28050ebbd72dd3c72b321/65926a41bbb006bb-a2/s1280x1920/dea09f8b41e07bbce5ef9ff8d2c6d1ac5b38b44c.pnj)
+  ![image](https://64.media.tumblr.com/01c36aca06fe4cdfaa6f9d5ecf867971/73d8c91ed679769d-1a/s640x960/2dfadef23921679f407541b70ec17508b76fc51c.pnj)
 
 
 
