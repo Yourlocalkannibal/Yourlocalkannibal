@@ -17,12 +17,12 @@
 
  <p align="center"
 
- *If you're offered a dead dove, eat it or leave it. Simple.*
+ ${\color{red} \text{"If you're offered a dead dove, eat it or leave it. Simple."}}$
 
   <p align="center"
 
-ᛝྀིྀི༝Professional hikkikomori loser who loves the grotesque! Wanna know more of me? Go to my strawpaw, I collect blinkies there tehe~ 
-
+${\color{red} \text{ᛝྀིྀི༝Professional hikkikomori loser who loves the grotesque!}}$
+${\color{red} \text{Wanna know more about me? Peek at my strawpaw hehe~}}$
 
 ![image](https://64.media.tumblr.com/8099ae0038afe5211b11cf6a25d698e3/41eeb3a47dcbc3c4-78/s250x400/d10d5e43d74eed4e095f3bdb8733c2c8eefe638c.gif)![image](https://64.media.tumblr.com/11db2acc9f93a2c7c8f0000cb269c72b/d48083b7fa5daabc-44/s250x400/7bf1b992bab8c4346efcc5c8d82033eea6dc5363.gif) ![image](https://64.media.tumblr.com/f23713a8862b14ee5d0bcdc1aa75a5e8/d48083b7fa5daabc-95/s250x400/13413b99540cf2ac120a98484fe506304ed2f729.gif)![image](https://64.media.tumblr.com/b08d9b384404250963284df14092b286/1fb5832f49ed888b-0e/s250x400/2d1e1547c5bf205759f98a61cd62a2f4110c8d84.gif) ![image](https://64.media.tumblr.com/95bd1f5b8fb10951718c238431b742d9/938ad1e944a47477-60/s250x400/b85d2f68c93d15692a5818aa3b9e876a6972503b.gif)
 ![image](https://64.media.tumblr.com/bd9b51654a78c8698250332cc9da5967/0a63ac92a736742d-3a/s250x400/bccc2b56efe1d58805c873915dfd493a361cc922.gif) ![image](https://64.media.tumblr.com/4227f18fcc598b76e4c0ac7e15a72ea4/21babd0ca10c5937-85/s250x400/56e336088eb9c03b0dbe2a7487d812479fc1e451.gif)
