@@ -4,35 +4,32 @@
 
 <p align="center"
 
-![image](https://64.media.tumblr.com/1af7cb2fac6a7d69faed823a8b9c6c75/13bb36bb3bc35268-ea/s640x960/c45a6880618d8d7ccc88941a5ec27d3f0a906861.gif)
+![image](https://files.catbox.moe/2xxgyj.jpeg)
 
 <p align="center"
 
 ![image](https://64.media.tumblr.com/e14b6cd2bb1b10a3cdce41f98a73b42b/b3aa09ca418c2506-59/s540x810/6a4f38186af67f2c24cdab24c38d2f31d7c4f78c.webp)
 
-  
-  <p align="center" 
-      
-![image](https://64.media.tumblr.com/9ba99efbbfe2fcd1af3a8e99bbb7a5b1/13bb36bb3bc35268-04/s640x960/1e88ba5a364f896023612ce23158133ab9db436e.gif)
-
- <p align="center"
-
- ${\color{teal} \text{KNOCK KNOCK... "If you're offered a dead dove, eat it or leave it. Simple."}}$
 
   <p align="center"
 
-${\color{teal} \text{ᛝྀིྀི༝An hermit with strange interests. I won't open my door to rude guests}}$ ${\color{teal} \text{Otherwise, make yourself at home.}}$
+Woundn't you ${\color{red} \text{die}}$ tonight for love? Join me in ${\color{red} \text{death!}}$
 
-*"Who are you?"*
+  <p align="center"
 
-${\color{teal} \text{I'm not one to share a lot, my strawpaw show all you need.}}$
+  A hikkikomori who has a passionate love for horror! I promise I don't bite but if you're unwelcome, ${\color{red} \text{I'LL EAT YOU WHOLE}}$ . My strawpaw shares the infos, take a look!
 
+<p align="center"
 
+![image](https://64.media.tumblr.com/e14b6cd2bb1b10a3cdce41f98a73b42b/b3aa09ca418c2506-59/s540x810/6a4f38186af67f2c24cdab24c38d2f31d7c4f78c.webp)
 
-*"I have a collection, take a look!"*
+ <p align="center"
+  
+  ![image](https://files.catbox.moe/vcansf.jpeg)
 
-${\color{teal} \text{You're supposed to be safe here.}}$
-
+<details>
+  
+<summary>Blinkies</summary>
 
 ![image](https://64.media.tumblr.com/d336715867127298590e80cbe2bcebc6/b575e24baf7a453a-b8/s250x400/17e7a5066da3dabdc3de3215e235b66f5da930c5.webp) ![image](https://64.media.tumblr.com/1a27bcd16dd351e8918a1a4d60babbfc/b575e24baf7a453a-02/s250x400/25353d3886186d11a42cd2dffef2093066a7ec83.gif) ![image](https://64.media.tumblr.com/fed0de20c35f471ef8e377dfb5ba5ded/68f8ef982012f41e-73/s250x400/045f9522349544cae7e829510f5b51f693f27c80.gif) ![image](https://64.media.tumblr.com/227dce3ef449de28437e62f2c7e673e9/69dcda1eed0fee42-a2/s250x400/a59616289e2ac5e03ed1cbb0c745af08e7bc0afe.gif) ![image](https://64.media.tumblr.com/512ee80615201be07a9c58ff6cb56c3f/c8864d5bf7463398-8e/s250x400/dec77a6c51917dc25cf3ce7c5a25268a0bb313ea.gif) ![image](https://64.media.tumblr.com/02fccfd929e7755401c22bea3c0614a7/c8864d5bf7463398-b0/s250x400/253b569fecc4028a0a943dfc3fe426453700bb40.gif) ![image](https://64.media.tumblr.com/34adabc88e8fb34ed846a60a0530755c/c8864d5bf7463398-a8/s250x400/a1fbfda79a0c5baa26a2f5554602c36b4d8e1df9.gif) ![image](https://64.media.tumblr.com/9b26a6915f3f86e9fb6d947e0b0ed1ef/87454b61189c796e-dd/s250x400/0274f6baf19e43e77dd7387e739916bcb8db18e1.gif)![image](https://64.media.tumblr.com/8099ae0038afe5211b11cf6a25d698e3/41eeb3a47dcbc3c4-78/s250x400/d10d5e43d74eed4e095f3bdb8733c2c8eefe638c.gif) ![image](https://64.media.tumblr.com/11db2acc9f93a2c7c8f0000cb269c72b/d48083b7fa5daabc-44/s250x400/7bf1b992bab8c4346efcc5c8d82033eea6dc5363.gif) ![image](https://64.media.tumblr.com/f23713a8862b14ee5d0bcdc1aa75a5e8/d48083b7fa5daabc-95/s250x400/13413b99540cf2ac120a98484fe506304ed2f729.gif)![image](https://64.media.tumblr.com/b08d9b384404250963284df14092b286/1fb5832f49ed888b-0e/s250x400/2d1e1547c5bf205759f98a61cd62a2f4110c8d84.gif) ![image](https://64.media.tumblr.com/95bd1f5b8fb10951718c238431b742d9/938ad1e944a47477-60/s250x400/b85d2f68c93d15692a5818aa3b9e876a6972503b.gif)
 ![image](https://64.media.tumblr.com/bd9b51654a78c8698250332cc9da5967/0a63ac92a736742d-3a/s250x400/bccc2b56efe1d58805c873915dfd493a361cc922.gif) ![image](https://64.media.tumblr.com/4227f18fcc598b76e4c0ac7e15a72ea4/21babd0ca10c5937-85/s250x400/56e336088eb9c03b0dbe2a7487d812479fc1e451.gif)
@@ -47,13 +44,8 @@ ${\color{teal} \text{You're supposed to be safe here.}}$
 
 ![image](https://64.media.tumblr.com/6d12260a3fe9b65f3c9882199f96c30e/60c743a7b9ce31f0-17/s100x200/41987d538b26e28dbad4366e788e51984d3d7fcc.gif) ![image](https://github.com/user-attachments/assets/4ea1a932-c2d7-4a30-8d5b-5b6235ed213f) ![image](https://64.media.tumblr.com/cab71c00b358ab792a335a80c16d9c57/ec4e0e3064314d61-c3/s250x400/4d500e0050e382c38ace47110ced64973424408a.gif)![image](https://64.media.tumblr.com/4d60f998841f56c753045923f1a7276c/cfa5b983c7939828-9d/s75x75_c1/339003939cdb2f7904e33eac506c92a481791585.gif) ![image](https://64.media.tumblr.com/5c049dae0c56602060dbd7e0a5a08670/cccccd202406e953-0a/s100x200/e1ceb95dc4fabbe0c54fd15cf6066a88118847d0.gif) ![image](https://64.media.tumblr.com/1aa7a3773953c64174790809278613b6/e264a9bf64ff629f-63/s100x200/58ec198125545a594b55060fe6c31ccbc8b911a9.gif) ![image](https://64.media.tumblr.com/d26a98169e2094afbed57f23bd5372e3/e264a9bf64ff629f-49/s75x75_c1/5756054981c76d9959d4bdfa7e3502759f529544.gif)
 
-<p align="center"
 
-![image](https://64.media.tumblr.com/e14b6cd2bb1b10a3cdce41f98a73b42b/b3aa09ca418c2506-59/s540x810/6a4f38186af67f2c24cdab24c38d2f31d7c4f78c.webp)
 
- <p align="center"
-  
-  ![image](https://64.media.tumblr.com/6d419559a013f779cf29f820710e20e2/13bb36bb3bc35268-4e/s640x960/8a7eab83791f8bfc94cac4a54eb289645ab32cca.gif)
 
 
 
