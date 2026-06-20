@@ -21,6 +21,10 @@ Woundn't you ${\color{red} \text{die}}$ tonight for love? Join me in ${\color{re
 
 <p align="center"
 
+  ${\color{grey} \text{Credits to the artist and CEO of the ship Unusualwolf for the bunnies art!}}$
+
+<p align="center"
+
 ![image](https://64.media.tumblr.com/e14b6cd2bb1b10a3cdce41f98a73b42b/b3aa09ca418c2506-59/s540x810/6a4f38186af67f2c24cdab24c38d2f31d7c4f78c.webp)
 
  <p align="center"
