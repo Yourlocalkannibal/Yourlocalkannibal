@@ -13,7 +13,7 @@
 
   <p align="center"
 
- ![image](https://64.media.tumblr.com/c25ca662a51b5c83a33d826c137d196a/9d6f516b1fd1df3f-06/s250x400/59944ac2671c55b50291559e3440eb29c0fca5ec.gif) ![image](https://files.catbox.moe/sv5xhs.png) ![image](https://64.media.tumblr.com/c25ca662a51b5c83a33d826c137d196a/9d6f516b1fd1df3f-06/s250x400/59944ac2671c55b50291559e3440eb29c0fca5ec.gif)
+ ![image](https://64.media.tumblr.com/c25ca662a51b5c83a33d826c137d196a/9d6f516b1fd1df3f-06/s250x400/59944ac2671c55b50291559e3440eb29c0fca5ec.gif) ![image](https://files.catbox.moe/6txuvu.gif) ![image](https://64.media.tumblr.com/c25ca662a51b5c83a33d826c137d196a/9d6f516b1fd1df3f-06/s250x400/59944ac2671c55b50291559e3440eb29c0fca5ec.gif)
 
   <p align="center"
 
@@ -45,9 +45,10 @@
 
 <p align="center"
 
-  ${\color{hotpink} \text{"Ara, you reached the bottom, sorry no treats for that feast!"}}$
+  ${\color{hotpink} \text{"OWO, you reached the bottom?! Sorry no treats for that!"}}$
 
 ![image](https://files.catbox.moe/tqmwws.jpeg)
+
 
 
 
