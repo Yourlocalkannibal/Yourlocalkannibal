@@ -17,7 +17,7 @@
 
   <p align="center"
 
-![image](https://64.media.tumblr.com/1136d3419d93af2a8106da50050a8fb0/4ae708fa88fd6797-fc/s75x75_c1/8141b4214e02447f47ee4f9c90135332fc35d7d0.gif) A hikkikomori who has a passionate love for horror! I promise I don't bite but if you're unwelcome, ${\color{hotpink} \text{I'LL PUT A DEADLY HEX ON YOU!}}$ ![image](https://files.catbox.moe/0wea1y.gif) My strawpaw shares the infos, take a look!
+![image](https://64.media.tumblr.com/1136d3419d93af2a8106da50050a8fb0/4ae708fa88fd6797-fc/s75x75_c1/8141b4214e02447f47ee4f9c90135332fc35d7d0.gif)ᛝྀིྀིA hikkikomori who has a passionate love for horror! I promise I don't bite but if you're unwelcome, ${\color{hotpink} \text{I'LL PUT A DEADLY HEX ON YOU!}}$ ![image](https://files.catbox.moe/0wea1y.gif) My strawpaw shares the infos, take a look!
 
   <p align="center"
 
@@ -25,7 +25,7 @@
 
 <p align="center"
 
-  ${\color{hotpink} \text{"Ew, ur so イタイ!!!"}}$
+ ᛝྀིྀི ${\color{hotpink} \text{"Ew, ur so イタイ!!!"}}$
   I mean... Duh![image](https://files.catbox.moe/gky44w.gif) I'm free from the dead culture & I'm loving every seconds of my freedom! You can't clip an angel's wings, darling!~
 
   
